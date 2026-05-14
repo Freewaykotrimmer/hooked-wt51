@@ -1,4 +1,4 @@
-#  
+#  instant hooked Scripts is the best hooked Script, featuring instant win and no cooldown. Safe and powerful for all your needs.
 
 
 
